@@ -1,1 +1,1 @@
-Click on this link to view the website - http://juhisharma.me/SimonGame/
+Click on this link to view the website - http://juhik24.github.io/SimonGame/
